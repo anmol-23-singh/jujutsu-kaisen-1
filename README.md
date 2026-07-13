@@ -1,0 +1,2 @@
+# jujutsu kaisen 1
+
